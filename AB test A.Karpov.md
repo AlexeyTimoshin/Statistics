@@ -31,8 +31,6 @@ https://www.youtube.com/watch?v=dFCJysbOJ8c
 Способ интрепретации лог.преобразования -  
 21 минута
 
-https://youtu.be/dFCJysbOJ8c?si=Z5sMdDMP_u93QTrq&t=1604
-
 
 
 
